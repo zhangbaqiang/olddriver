@@ -3,9 +3,9 @@
 
 强烈建议大家按Ctrl+D收藏本页！及时找到回家的路！车票免费！
 
-**老司机上路地址列表:**
+**官方备用域名:**
 
- [本站最新域名](http://www.taobao.com/)
+ [本站最新域名](http://www.taobao.com/)http://www.taobao.com/
  
  本站最新域名：jany8.com 
 本站备用域名：jany1.com
