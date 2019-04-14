@@ -5,4 +5,10 @@
 
 **老司机上路地址列表:**
 
- [星火老司机站点1](http://www.taobao.com/)
+ [本站最新域名](http://www.taobao.com/)
+ 
+ 本站最新域名：jany8.com 
+本站备用域名：jany1.com
+本站备用域名：jany2.com
+广告咨询：92xxav@gmail.com
+网址找回邮箱：92xxav@gmail.com
